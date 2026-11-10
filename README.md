@@ -1,9 +1,9 @@
-# Palestine Social Event
+# Information session on the open letter to European university leaders
 
-5 November 2026, 18:30
+17 November 2026, 13:30
 
 <br>
-Jardì de les Agües<br>
+Pati de l'edifici Jaume I<br>
 Campus de la Ciutadella<br>
 Universitat Pompeu Fabra<br> 
 
